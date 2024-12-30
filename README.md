@@ -1,1 +1,1 @@
-this is a math IA done by Yizhen Zhou
+this is a math extended essay done by Yizhen Zhou
